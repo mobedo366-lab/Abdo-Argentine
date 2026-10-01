@@ -19,5 +19,4 @@
 
 ---
 
-### 📫 تواصل معي (Connect with Me):
-- **TikTok:** [@Abdo Argentine](https://www.tiktok.com)
+* **WhatsApp:** [+201159646751](https://wa.me/201159646751)
